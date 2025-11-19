@@ -80,7 +80,7 @@ SELF HAIR COACH sadece bir uygulama değil, aynı zamanda küresel bir sosyal ak
 
 ## Ekip
 
-[Ceren Önol - Matematik
+[Ceren Önol - Matematik ,
 Ömer Onur Akçay - İşletme]
 
-© [2025] - [Smile Hair Clinic/Coderspace/Luma Mobil/Self Hair Coach]
+© [2025] - [Smile Hair Clinic / Coderspace / Luma Mobil / Self Hair Coach]
