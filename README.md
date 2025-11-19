@@ -61,11 +61,11 @@ Klinik ciddiyeti + teknolojik hassasiyeti bir araya getiren premium bir görsel 
 
 ---
 
-## 📈 Viral Büyüme Vizyonu: #SmileHairkolik
+## 📈 Viral Büyüme Vizyonu: #SmileHairColik
 
 SELF HAIR COACH sadece bir uygulama değil, aynı zamanda küresel bir sosyal akım mimarisidir.
 
-**HAİRKOLİĞİZ!** sloganı ile desteklenen #SmileHairkolik vizyonu:  
+**HAİRCOLİĞİZ!** sloganı ile desteklenen #SmileHairkolik vizyonu:  
 - Kullanıcılar AI garantili profesyonel fotoğraflarını paylaşır.  
 - Organik sadakat + viral büyüme elde edilir.  
 - Klinik görünürlüğü uluslararası seviyede artar.  
